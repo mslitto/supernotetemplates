@@ -15,6 +15,18 @@ Have fun!
 An introduction how to use it:
 https://youtu.be/2rfWEPJIknQ
 
+#### 2. Sticker Set (free version)
+
+Stickers to use on Supernote. It is in the note format so you can easily copy and past elements from there
+Enjoy!
+
+An introoduction how to use them: 
+https://youtu.be/9danujhKuIs
+
+Whole sticker set you can buy here: 
+https://buymeacoffee.com/littonotes/e/354048
+
+
 
 
 
