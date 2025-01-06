@@ -20,7 +20,7 @@ https://youtu.be/2rfWEPJIknQ
 Stickers to use on Supernote. It is in the note format so you can easily copy and past elements from there
 Enjoy!
 
-An introoduction how to use them: 
+An introduction how to use them: 
 https://youtu.be/9danujhKuIs
 
 Whole sticker set you can buy here: 
