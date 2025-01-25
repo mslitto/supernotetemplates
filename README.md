@@ -26,6 +26,16 @@ https://youtu.be/9danujhKuIs
 Whole sticker set you can buy here: 
 https://buymeacoffee.com/littonotes/e/354048
 
+#### 3. Manage your expenses
+
+A simple template for supernote to calculate your monthly and weekly expenses. 
+And an excel sheet to use for your liquidity plan for the year 2025
+I hope that helps you to manage your costs as a self employed person!
+
+If our like to support me with a coffee to minimise my weekly costs :)
+https://buymeacoffee.com/littonotes
+
+
 
 
 
