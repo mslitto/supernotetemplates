@@ -35,7 +35,7 @@ I hope that helps you to manage your costs as a self employed person!
 If our like to support me with a coffee to minimise my weekly costs :)
 https://buymeacoffee.com/littonotes
 
-Sticker Files (snstk) free version 
+#### 4. Sticker Files (snstk) free version 
 Sticker files to import to your sticker sheet tool on Supernote
 Bujo Stickers and Weather Stickers
 
