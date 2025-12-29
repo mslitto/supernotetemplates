@@ -15,6 +15,9 @@ Have fun!
 An introduction how to use it:
 https://youtu.be/2rfWEPJIknQ
 
+calendar 2026 (4.5 Euro)
+https://buymeacoffee.com/littonotes/e/492829
+
 #### 2. Sticker Set (free version)
 
 Stickers to use on Supernote. It is in the note format so you can easily copy and past elements from there
@@ -41,6 +44,9 @@ Bujo Stickers and Weather Stickers
 
 Other Stickers Sets
 https://buymeacoffee.com/littonotes
+
+#### 5. Meeting Template
+One page meeting template
 
 
 
